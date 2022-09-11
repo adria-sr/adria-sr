@@ -1,6 +1,6 @@
 # 👋 Welcome in my digital workspace #
 
-Hi there ! I'm @adria-sr, 19 y.o. graphic design student in Toulouse, France.
+Hi there ! I'm @adria-sr, 20 y.o. graphic design student in Toulouse, France.
 
 Here I work as well on school, personal and on professional projects.
 
